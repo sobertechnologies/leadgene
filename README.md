@@ -1,0 +1,2 @@
+# leadgene
+sober technologies provide an effective lead management platform to automate and measure lead generation and qualification process. Our end-to-end lead management services help to smoothly execute campaigns. Additionally, we also track, measure and report each lead behavior and engage them accordingly. Sober technologies provide prospect leads that are developed by industry experts after thorough market research and validation. Such customized databases can help you identify your potential customers and their preferences and choices of services. 
